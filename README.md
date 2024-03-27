@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jawadomari94
-- 👀 I’m interested in ...Web Development
+- 👀 I’m interested in ...SEO,Web Development
 - 🌱 I’m currently learning ...PHP
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...What'sUp 962799356567
